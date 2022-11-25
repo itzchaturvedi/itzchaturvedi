@@ -15,8 +15,6 @@
 
 - 📫 How to reach me **itzchaturvedi@gmail.com**
 
-- 📄 Know about my experiences [I did joined Accenture on 24 Feb 2022.](I did joined Accenture on 24 Feb 2022.)
-
 - ⚡ Fun fact **I think I'm a open book person.**
 
 <h3 align="left">Connect with me:</h3>
